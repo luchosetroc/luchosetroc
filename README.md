@@ -1,16 +1,15 @@
-### Hi there 👋
+# Quien soy?
 
-<!--
-**luchosetroc/luchosetroc** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+## Escenógrafo Iluminador
 
-Here are some ideas to get you started:
+### Diseño y realización de escenografías y utilerias para Vendimia, obras de teatro, danza y eventos corportivos
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+### Diseño de iluminación teatral para diferentes tipos de espectáculos
+
+[Instagram] (https://www.instagram.com/luchosetroc/)
+
+![img](https://pbs.twimg.com/profile_images/1019639350517227520/5-26t6Us_400x400.jpg)
+
+
+
+
